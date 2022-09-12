@@ -1,8 +1,8 @@
 - 👋 oi, eu sou @SEUTONHAO007
 - 👀 sou enteresado em suco de laranja
-- 🌱 eu aprendo muito com jailson mendes 
-- 💞️ eu colaboro com sexo a meia noite 
-- 📫 para me achar e so clicar maes solteiras 24 horas 
+- 🌱 eu gosto muito de estudor
+- 💞️ sou gente boa  
+- 📫 pretendo ser alguém na vida 
 
 <!---
 SEUTONHAO007/SEUTONHAO007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
